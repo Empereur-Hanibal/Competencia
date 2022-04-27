@@ -1,1 +1,1 @@
-# Comp-tencia
+# Competencia
